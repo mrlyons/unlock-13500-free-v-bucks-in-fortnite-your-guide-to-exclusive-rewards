@@ -4,7 +4,7 @@
 
 Are you ready to elevate your Fortnite game without spending a dime? In October 2024, Epic Games is offering an incredible opportunity for players to redeem a free code for **13,500 V-Bucks**! That's right—this limited-time offer allows you to acquire in-game currency that can be used to purchase skins, outfits, pets, emotes, and more. Don’t miss out on this chance to level up your Fortnite experience
 
-[✅🔴👉Get Ultimate Free V-Bucks Code!](https://mrlyons.github.io/freecode/)
+## [✅🔴👉Get Ultimate Free Code Here!](https://mrlyons.online/giftcards/)
 
 ### What Are V-Bucks?
 
